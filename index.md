@@ -1,37 +1,20 @@
-## Welcome to GitHub Pages
+### O que é doença?
+### Toda doença tem algo em comum, a doença é falta de energia
 
-You can use the [editor on GitHub](https://github.com/sestremprofessor/saude/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+A doença é o desequilíbrio da saúde e representa qualquer estado de deterioração do organismo humano. Em todas as doenças ocorre um enfraquecimento do sistema de defesa natural do corpo, o que é considerado uma falta de saúde. Quando o corpo carece de energia para seu perfeito funcionamento, ele entra em desequilíbrio e o estado de doença se desenvolve.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Portanto, é a falta de energia que nos deixa doentes.
 
-### Markdown
+Daí surge a pergunta: como podemos criar energia em nosso corpo?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Nosso corpo obtém sua energia principalmente da combustão. Para obter energia, queimamos açúcares, gorduras e proteínas de nossos alimentos. Obtemos energia através da combustão de calorias, não só o combustível é importante, pois existe outro fator tão ou mais importante ... o oxigênio. 
 
-```markdown
-Syntax highlighted code block
+Toda combustão precisa de oxigênio, pois sem oxigênio nada queima.  
 
-# Header 1
-## Header 2
-### Header 3
+ 
 
-- Bulleted
-- List
+Este simples fato não é suficientemente levado em consideração na maioria das investigações bioquímicas. É a combustão que cria o calor e a energia necessários para o funcionamento do nosso corpo e, ao mesmo tempo, gera eletricidade, que é a energia vital essencial.
 
-1. Numbered
-2. List
+A única diferença entre um corpo vivo ou um morto é a ausência de eletricidade. Somos seres elétricos energéticos com um corpo que obtém sua energia ideal por meio da combustão bioquímica.
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/sestremprofessor/saude/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+O dióxido de cloro fornece oxigênio biodisponível e pode ser claramente visto após a infusão intravenosa na gasometria venosa. Eles são a evidência científica de que o dióxido de cloro se dissocia no soro sanguíneo liberando oxigênio com biodisponibilidade molecular
