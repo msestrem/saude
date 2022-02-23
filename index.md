@@ -2,16 +2,16 @@
 
 Algumas informações sobre MMS (Master Mineral Solution) e sobre CDS(Solução de Dióxido de Cloro). 
 
-O Dr. Lair Ribeiro em sua aula de pós graduação para médicos, apresenta um resumo da história de como Jim Humble descobriu o efeito benéfico para a saúde corporal da solução que passou a chamar MMS ( e apresenta o MMS do Jim Humble e o CDS desenvolvido por Andreas Ludwig Kalcker. Andreas Kalcker, Biofísico alemão, atualmente vive na Suíça,  após obter a cura de artrite reumatoide com MMS, desenvolveu o CDS. 
+O Dr. Lair Ribeiro em sua aula de pós graduação para médicos, apresenta um resumo da história de como Jim Humble descobriu o efeito benéfico para a saúde corporal da solução que passou a chamar MMS ( e apresenta o MMS do Jim Humble e o CDS desenvolvido pelo Dr. Andreas Ludwig Kalcker. Dr. Andreas Kalcker, Biofísico alemão, atualmente vive na Suíça,  após obter a cura de artrite reumatoide grave com MMS, desenvolveu o CDS. 
 Vídeo do Dr. Lair Ribeiro:
 ### [Dr. Lair Ribeiro explicando o que é MMS e CDS](https://www.brighteon.com/176e197a-8384-4745-a988-4d8a6191c4ab)
 
 Jim Humble, que descobriu o que ele chamou de MMS - Miracle Mineral Solution, publicou um livro intitulado: A SOLUÇÃO MINERAL MESTRE DO TERCEIRO MILÊNIO, onde relata testemunhos de cura de diversas doenças e o tratamento adotado pelas testemunhas com o uso do MMS. Estas informações também poderão ser obtidas em seu site:
 ### [Site oficial de Jim Humble](https://jimhumble.co/)
 
-No livro do Andreas Luwig Kalcker, que se curou com MMS e desenvolveu o CDS, há relatos de pessoas que se curaram com o uso do CDS e as dosagens adotadas.
+No livro do Dr. Andreas Ludwig Kalcker, que se curou com MMS e desenvolveu o CDS, há relatos de pessoas que se curaram com o uso do CDS e as dosagens adotadas.
 No seu site Oficial também há muitíssimas informações a respeito. 
-### [Palestra de Andreas Kalcker: MMS - CDS:  NOVOS HORIZONTES NO CAMINHO DA CURA](https://www.youtube.com/watch?v=vO5AFvsxyrc)
+### [Palestra do Dr. Andreas Kalcker: MMS - CDS:  NOVOS HORIZONTES NO CAMINHO DA CURA](https://www.youtube.com/watch?v=vO5AFvsxyrc)
 ### [Site oficial de Andreas Ludwig Kalcker em português](https://andreaskalcker.com/pt/)
 
 O dióxido de Cloro é comercializado livremente pois Ministério de saúde autoriza a aplicação de dióxido de cloro, no tratamento da água de consumo humano para torná-la potável, conforme disposto no Artigo 32 da Portaria MS Nº 2914 DE 12/12/2011.
@@ -31,7 +31,7 @@ A Coalizão Mundial Sáude e Vida - Comusav formada por mais de 5000 médicos e 
 
 ### Outras informações sobre o MMS e CDS:
 
-### [Uma Jornada Humilde A História do MMS Um Filme de Sacha Stone](https://rumble.com/ve2lo7-uma-jornada-humilde-a-histria-do-mms-um-filme-de-sacha-stone.html)
+### [Uma Jornada Humilde - A História do MMS - Um Filme de Sacha Stone](https://rumble.com/ve2lo7-uma-jornada-humilde-a-histria-do-mms-um-filme-de-sacha-stone.html)
 
 ### [Como fracionar uma gota ativada de MMS 1/4 ½. ¾](https://rumble.com/ve6zqb-como-fracionar-uma-gota-ativada-de-mms.html)
 
