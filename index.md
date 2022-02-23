@@ -6,7 +6,7 @@ Algumas informações sobre MMS (Mineral Miracle Solution) e sobre CDS(Solução
 
 O Dr. Lair Ribeiro em sua aula de pós graduação para médicos, apresenta um resumo da história de como Jim Humble descobriu o efeito benéfico para a saúde corporal da solução que passou a chamar MMS ( e apresenta o MMS do Jim Humble e o CDS desenvolvido por Andreas Ludwig Kalcker. Andreas Kalcker, Biofísico alemão, atualmente vive na Suíça,  após obter a cura de artrite reumatoide com MMS, desenvolveu o CDS. 
 Vídeo do Dr. Lair Ribeiro:
-### [Dr. Lair Ribeiro explicando o que é MMS e CDS](https://www.brighteon.com/176e197a-8384-4745-a988-4d8a6191c4ab”>
+### [Dr. Lair Ribeiro explicando o que é MMS e CDS](https://www.brighteon.com/176e197a-8384-4745-a988-4d8a6191c4ab)
 
 Jim Humble, que descobriu o que ele chamou de MMS - Miracle Mineral Solution, publicou um livro intitulado: A SOLUÇÃO MINERAL MESTRE DO TERCEIRO MILÊNIO, onde relata testemunhos de cura de diversas doenças e o tratamento adotado pelas testemunhas com o uso do MMS. Estas informações também poderão ser obtidas em seu site:
 ### [Site oficial de Jim Humbl](https://jimhumble.co/)
