@@ -1,8 +1,6 @@
-### MMS (Mineral Miracle Solution)
-###              &
-### CDS(Solução de Dióxido de Cloro)
+### MMS (MASTER MINERAL SOLUTION) & CDS(SOLUÇÃO DE DIÓXIDO DE CLORO)
 
-Algumas informações sobre MMS (Mineral Miracle Solution) e sobre CDS(Solução de Dióxido de Cloro). 
+Algumas informações sobre MMS (Master Mineral Solution) e sobre CDS(Solução de Dióxido de Cloro). 
 
 O Dr. Lair Ribeiro em sua aula de pós graduação para médicos, apresenta um resumo da história de como Jim Humble descobriu o efeito benéfico para a saúde corporal da solução que passou a chamar MMS ( e apresenta o MMS do Jim Humble e o CDS desenvolvido por Andreas Ludwig Kalcker. Andreas Kalcker, Biofísico alemão, atualmente vive na Suíça,  após obter a cura de artrite reumatoide com MMS, desenvolveu o CDS. 
 Vídeo do Dr. Lair Ribeiro:
