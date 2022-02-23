@@ -12,7 +12,7 @@ Jim Humble, que descobriu o que ele chamou de MMS - Miracle Mineral Solution, pu
 No livro do Dr. Andreas Ludwig Kalcker, que se curou com MMS e desenvolveu o CDS, há relatos de pessoas que se curaram com o uso do CDS e as dosagens adotadas.
 No seu site Oficial também há muitíssimas informações a respeito. 
 ### [Palestra do Dr. Andreas Kalcker: MMS - CDS:  NOVOS HORIZONTES NO CAMINHO DA CURA](https://www.youtube.com/watch?v=vO5AFvsxyrc)
-### [Site oficial de Andreas Ludwig Kalcker em português](https://andreaskalcker.com/pt/)
+### [Site oficial do Dr. Andreas Ludwig Kalcker em português](https://andreaskalcker.com/pt/)
 
 O dióxido de Cloro é comercializado livremente pois Ministério de saúde autoriza a aplicação de dióxido de cloro, no tratamento da água de consumo humano para torná-la potável, conforme disposto no Artigo 32 da Portaria MS Nº 2914 DE 12/12/2011.
 ### [Site para obtenção da Portaria MS Nº 2914 DE 12/12/2011](https://www.gov.br/agricultura/pt-br/assuntos/inspecao/produtos-vegetal/legislacao-1/biblioteca-de-normas-vinhos-e-bebidas/portaria-no-2-914-de-12-de-dezembro-de-2011.pdf/@@download/file/portaria-no-2-914-de-12-de-dezembro-de-2011.pdf)
