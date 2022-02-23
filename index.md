@@ -7,7 +7,7 @@ Vídeo do Dr. Lair Ribeiro:
 ### [Dr. Lair Ribeiro explicando o que é MMS e CDS](https://www.brighteon.com/176e197a-8384-4745-a988-4d8a6191c4ab)
 
 Jim Humble, que descobriu o que ele chamou de MMS - Miracle Mineral Solution, publicou um livro intitulado: A SOLUÇÃO MINERAL MESTRE DO TERCEIRO MILÊNIO, onde relata testemunhos de cura de diversas doenças e o tratamento adotado pelas testemunhas com o uso do MMS. Estas informações também poderão ser obtidas em seu site:
-### [Site oficial de Jim Humbl](https://jimhumble.co/)
+### [Site oficial de Jim Humble](https://jimhumble.co/)
 
 No livro do Andreas Luwig Kalcker, que se curou com MMS e desenvolveu o CDS, há relatos de pessoas que se curaram com o uso do CDS e as dosagens adotadas.
 No seu site Oficial também há muitíssimas informações a respeito. 
