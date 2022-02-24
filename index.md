@@ -2,32 +2,19 @@
 
 Algumas informações sobre MMS (Master Mineral Solution) e sobre CDS(Solução de Dióxido de Cloro). 
 
-O Dr. Lair Ribeiro em sua aula de pós graduação para médicos, apresenta um resumo da história de como Jim Humble descobriu o efeito benéfico para a saúde corporal da solução que passou a chamar MMS ( e apresenta o MMS do Jim Humble e o CDS desenvolvido pelo Dr. Andreas Ludwig Kalcker. Dr. Andreas Kalcker, Biofísico alemão, atualmente vive na Suíça,  após obter a cura de artrite reumatoide grave com MMS, desenvolveu o CDS. 
-Vídeo do Dr. Lair Ribeiro:
-### [Dr. Lair Ribeiro explicando o que é MMS e CDS](https://www.brighteon.com/176e197a-8384-4745-a988-4d8a6191c4ab)
+O [Dr. Lair Ribeiro](https://lairribeiro.com.br/) em sua [aula](https://www.brighteon.com/176e197a-8384-4745-a988-4d8a6191c4ab) do curso de Pós-Graduação para médicos, apresentou um resumo da história de como Jim Humble, em 1996, descobriu o efeito benéfico para a saúde corporal da solução que, então chamava de MMS (MINERAL MIRACLE SOLUTION) e apresentou também o MMS do Jim Humble e o CDS desenvolvido pelo Dr. Andreas Ludwig Kalcker. Dr. Andreas Kalcker, Biofísico alemão, atualmente vive na Suíça,  após obter a cura de artrite reumatoide grave com MMS, desenvolveu o CDS. Em sua palestra no Rio de Janeiro em outubro de 2015, [Palestra do Dr. Andreas Kalcker: MMS - CDS:  NOVOS HORIZONTES NO CAMINHO DA CURA](https://www.youtube.com/watch?v=vO5AFvsxyrc), comentada pelo Dr. Lair Ribeiro, Dr. Andreas Kalcker apresenta mais detalhes sobre sua experiência pessoal e profissional no uso do MMS/CDS. Estas informações também podem ser obtidas em seu [site](https://andreaskalcker.com/pt/)
 
-Jim Humble, que descobriu o que ele chamou de MMS - Miracle Mineral Solution, publicou um livro intitulado: A SOLUÇÃO MINERAL MESTRE DO TERCEIRO MILÊNIO, onde relata testemunhos de cura de diversas doenças e o tratamento adotado pelas testemunhas com o uso do MMS. Estas informações também poderão ser obtidas em seu site:
-### [Site oficial de Jim Humble](https://jimhumble.co/)
+[Jim Humble](https://jimhumble.co/), em sua mais recente publicação, A SOLUÇÃO MINERAL MESTRE DO TERCEIRO MILÊNIO, passa a chamar o MMS de Master Mineral Solutio e  relata mais testemunhos de cura de diversas doenças e o tratamento adotado pelas testemunhas com o uso do MMS. Mais detalhes sobre a descoberta no MMS por Jim Humble pode ser encontrada em seu livro [Milagroso Suplemento Mineral del Siglo 21](http://www.librosmaravillosos.com/milagrososuplementomineraldelsigloXXI/index.html). Estas informações também poderão ser obtidas em seu [site](https://jimhumble.co/).
 
-No livro do Dr. Andreas Ludwig Kalcker, que se curou com MMS e desenvolveu o CDS, há relatos de pessoas que se curaram com o uso do CDS e as dosagens adotadas.
-No seu site Oficial também há muitíssimas informações a respeito. 
-### [Palestra do Dr. Andreas Kalcker: MMS - CDS:  NOVOS HORIZONTES NO CAMINHO DA CURA](https://www.youtube.com/watch?v=vO5AFvsxyrc)
-### [Site oficial do Dr. Andreas Ludwig Kalcker em português](https://andreaskalcker.com/pt/)
+No Brasil, o dióxido de Cloro é comercializado livremente pois Ministério de saúde autoriza a aplicação de dióxido de cloro, no tratamento da água de consumo humano para torná-la potável, conforme disposto no Artigo 32 da [Portaria MS Nº 2914 DE 12/12/2011](https://www.gov.br/agricultura/pt-br/assuntos/inspecao/produtos-vegetal/legislacao-1/biblioteca-de-normas-vinhos-e-bebidas/portaria-no-2-914-de-12-de-dezembro-de-2011.pdf/@@download/file/portaria-no-2-914-de-12-de-dezembro-de-2011.pdf).
 
-O dióxido de Cloro é comercializado livremente pois Ministério de saúde autoriza a aplicação de dióxido de cloro, no tratamento da água de consumo humano para torná-la potável, conforme disposto no Artigo 32 da Portaria MS Nº 2914 DE 12/12/2011.
-### [Site para obtenção da Portaria MS Nº 2914 DE 12/12/2011](https://www.gov.br/agricultura/pt-br/assuntos/inspecao/produtos-vegetal/legislacao-1/biblioteca-de-normas-vinhos-e-bebidas/portaria-no-2-914-de-12-de-dezembro-de-2011.pdf/@@download/file/portaria-no-2-914-de-12-de-dezembro-de-2011.pdf)
+A [International Dioxcide](https://idiclo2.com/), principal fornecedor de produtos químicos e equipamentos de dióxido de cloro para uso comercial na América do Norte (EUA, Canadá e México). Por mais de 70 anos, fornece ingredientes de qualidade e instrui milhares de organizações sobre como fabricar dióxido de cloro com segurança e implementar efetivamente soluções de desinfecção de [tratamento de água](https://www.brighteon.com/889cad0c-e805-4121-9b35-9cd20632da76) em larga escala para aplicações aprovadas pela EPA e FDA. 
 
+No Brasil há o [Projeto de Lei 192/21](https://www.camara.leg.br/noticias/728085-PROJETO-OBRIGA-SERVICOS-DE-SAUDE-A-FORNECER-DIOXIDO-DE-CLORO-PARA-TRATAR-A-COVID-19) tramitando no Congresso para obrigar os serviços de saúde a fornecer dióxido de cloro para tratar a Covid-19. Neste site há muitos comentários testemunhando o êxito na cura de diversas enfermidades. 
 
-No Brasil há um projeto de lei tramitando no Congresso para obrigar os serviços de saúde a fornecer dióxido de cloro para tratar a Covid-19. Há muitos comentários testemunhando o êxito na cura de diversas enfermidades. Projeto obriga serviços de saúde a fornecer dióxido de cloro para tratar a Covid-19 Fonte: Agência Câmara de Notícias
-### [Site da Câmara sobre este projeto de lei](https://www.camara.leg.br/noticias/728085-PROJETO-OBRIGA-SERVICOS-DE-SAUDE-A-FORNECER-DIOXIDO-DE-CLORO-PARA-TRATAR-A-COVID-19)
+Trata-se de produto purificador de água livremente comercializado no Brasil, como por exemplo pelas empresas: [Prana-Luz](https://www.purificadordeagua.shop) e [Loja Química](https://www.lojaquimica.com.br/kits-kit-mms-clorito-de-sodio-acido-cloridrico).
 
-
-Trata-se de produto purificador de água livremente comercializado no Brasil, como por exemplo pela empresa Prana-Luz.
-### [Site da empresa Prana-Luz](https://www.purificadordeagua.shop)
-
-
-A Coalizão Mundial Sáude e Vida - Comusav formada por mais de 5000 médicos e profissionais da saúde de vários paises, que utilizam o CDS em seus tratamentos, também oferece muitas publicações e vídeos a respeito no site: 
-### [Site oficial da COMUSAV em português](https://comusav.com/pt/)
+A Coalizão Mundial Sáude e Vida - [Comusav](https://comusav.com/pt/) formada por mais de 5000 médicos e profissionais da saúde de vários paises, que utilizam o CDS em seus tratamentos, também oferece muitas publicações a respeito em seu site. 
 
 ### Outras informações sobre o MMS e CDS:
 
